@@ -2,4 +2,4 @@ hi guys im biggiecheesetherat (themeatly2)
 
 im so kewl :D
 
-check out my website at <http://surfsup-is-a.fast-page.org>
+check out my website at <https://themeatly2.top>
